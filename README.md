@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @arsh569
+- 👀 I’m interested in Physics and teaching.
+- 🌱 I’m currently learning GitHub and coding basics.
+- 💞️ I’m looking to collaborate on educational projects.
+- 📫 Reach me at arshadeduawkum@gmail.com
+- ⚡ Fun fact: I love exploring science!
